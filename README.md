@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Wxlfiex
+- 👀 I’m interested in Anime and Gaming
+- 🌱 I’m currently learning Coding
+- 💞️ I’m looking to collaborate on i don´t know
+- 📫 How to reach me on Twitter, Discord and Instergram
